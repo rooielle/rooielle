@@ -1,27 +1,13 @@
-<img width="800" height="100" alt="1000013249" src="https://github.com/user-attachments/assets/12232c03-8d17-4de4-9aa7-1194242a1766" />
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Lines&size=25&pause=1000&color=AB0000&center=true&width=435&lines=%22I+Am...+All+Of+Me%22)](https://git.io/typing-svg)
-
-　 　⠀　　⠀ㅤ<img width="150" height="20" alt="1000013219" src="https://github.com/user-attachments/assets/2632710a-0f62-41de-88d1-2f0e3a1dec86" />
-
-   <img width="345" height="338" alt="1000013372" src="https://github.com/user-attachments/assets/1264e428-8e47-4e1c-a22a-10ee5a1a18d8" />
-
-<img width="800" height="100" alt="1000013376" src="https://github.com/user-attachments/assets/3473396a-3a8f-4f6c-a814-1910fc95e927" />
+<img width="400" height="20" alt="1000014359" src="https://github.com/user-attachments/assets/f195bea5-2482-4ee6-89d0-45d472fdd1d6" />
 
 
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=DM+Serif+Display&size=40&duration=2000&pause=999&color=3D4D84&center=true&vCenter=true&width=1000&height=49&lines=%22++An+Adventure+is+no+fun...;...If+it's+too+easy!+%22)](https://git.io/typing-svg)    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ      ㅤ  
+       ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
+      ㅤㅤㅤㅤㅤㅤㅤ
+     ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍ㅤㅤㅤ
+            ㅤ <img width="20" height="20" alt="1000014371" src="https://github.com/user-attachments/assets/e167bf12-baf6-4304-883a-e1ff4f9e7f82" />
 
-<!--
-**rooielle/rooielle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="1600" height="1000" alt="1000014379" src="https://github.com/user-attachments/assets/5ca75ec3-274a-475b-9031-05e1b84a8c26" />
+<img width="400" height="20" alt="1000014359" src="https://github.com/user-attachments/assets/ba97702c-c0f3-480a-9b7a-5922f85022e3" />
