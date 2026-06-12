@@ -3,8 +3,6 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bodoni+Moda&size=30&duration=2600&pause=1000&color=F7C246&center=true&vCenter=true&lines=%22I+determine+my+own+destiny.%22" alt="Typing SVG" /></a>
-
 
 
 <img width="1600" height="1000" alt="1000014531" src="https://github.com/user-attachments/assets/5fea544f-63d9-4b12-b4bf-b5267dbec88f" />
